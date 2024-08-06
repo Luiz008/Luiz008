@@ -10,4 +10,5 @@ Meu nome é Luiz
   ### Meio de contato 📫
   00001097696078SP@al.educacao.sp.gov.br
 
-![](https://media1.tenor.com/m/YGV1m0f5oOAAAAAC/homer-simpson-hide-in-shrubs.gif) 
+![image](https://github.com/user-attachments/assets/3d886069-3e8f-4c3c-9730-b3b1a2cce9ed)
+
